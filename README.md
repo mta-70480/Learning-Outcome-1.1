@@ -1,1 +1,1 @@
-# Learning-Outcome-1.1
+# Learning Outcome 1.1
